@@ -1,2 +1,2 @@
 # Phao-Hoa
-https://phamnhutduynguyen.github.io/Ph-o-Hoa/
+https://phamnhutduynguyen.github.io/Phao-Hoa/
